@@ -1,3 +1,3 @@
 # PROGRAMAÇÃO MOBILE
 
-## 1 - Atividade meu perfil currículo
+## 1 - Atividade meu perfil profisisonal 
